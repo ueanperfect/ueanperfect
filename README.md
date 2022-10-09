@@ -1,4 +1,4 @@
-### 👋Hi!!! I am YUEYAN 😊
+### 👋Hi! I am YUEYAN 😊
 
 <p align="center">
 
